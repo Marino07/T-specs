@@ -1,1 +1,1 @@
-Link stranice: 
+Link stranice: xx
